@@ -1,5 +1,5 @@
 
-本站已启用最新防封网址 www.sowai.net
+本站已启用最新防封网址 www.55500.info
 
 
 原有备用域名将在3天后停止访问
@@ -44,7 +44,7 @@ H小说最新网址
 另外也可以发送邮件到 avlianmeng@gmail.com 索取最新地址。
 
 
-网址导航： www.sowai.net www.xxgo.org
+网址导航： www.55500.info www.xxgo.org
 
 
 永久发布网址请各位收藏好。
@@ -53,4 +53,4 @@ H小说最新网址
 备用网址发布页：https://github.com/avlianmeng/dizi
 
 
-更新时间：2018.6.5
+更新时间：2018.6.30
